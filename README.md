@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Aleksandra
+- 🌱 I’m currently studying in Metropolia International Business and Logistics
